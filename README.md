@@ -1,3 +1,6 @@
+Akinlawon Babajide Fayokun is an accomplished Senior Enterprise Cybersecurity Leader with a proven track record in protecting sensitive digital assets across a wide range of industries, including financial institutions, government entities, and the manufacturing sector.
+
+
 ![Honor](https://github.com/user-attachments/assets/3def1264-e465-4922-8002-e128255886a2)
 # Techunlock-Cybersecurity-Training
 
